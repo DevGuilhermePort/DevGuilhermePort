@@ -13,3 +13,4 @@ Here are some ideas to get you started:
 - 📫 Como me encontrar: guilhermehfport@gmail.com
 - 😄 ronomes: Ele/Dele
 - ⚡ Sou apaixonado por tecnologia e IA, e gosto de me desafiar com projetos que me ajudam a aprender coisas novas todos os dias!
+-->
